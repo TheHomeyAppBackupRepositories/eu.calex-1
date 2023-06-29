@@ -1,0 +1,3 @@
+Ga voor producten die je leven vereenvoudigen en een extreem gevoel van comfort toevoegen. Naast handige slimme lichtbronnen hebben we ook decoratieve filament lampen toegevoegd die gezien mogen worden en accessoires waarvan je tot nu toe nooit wist dat je ze nodig had.
+
+Creëer je eigen sfeer en ervaar ultiem comfort in huis met de Calex Smart producten. Stel persoonlijke voorkeuren in en breid je comfort uit met een combinatie van slimme accessoires. Zelfs “niet-slimme” apparaten kunnen met sommige van deze producten slim en intuïtief worden gemaakt.

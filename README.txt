@@ -1,0 +1,3 @@
+Go for products that simplify your life and add an extreme sense of comfort. In addition to handy smart light sources, we have also added decorative filament lamps that may be seen and accessories that you never knew you needed until now.
+
+Create your own atmosphere and experience ultimate comfort in your home with the Calex Smart products. Set personal preferences and expand your comfort with a combination of smart accessories. Even “non-smart” devices can be made smart and intuitive with some of these products.
